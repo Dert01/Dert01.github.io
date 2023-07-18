@@ -1,1 +1,1 @@
-# Dert01.github.io
+# WISE ES EL MEJOR, SI SABE LA PAMPARA PAPI
